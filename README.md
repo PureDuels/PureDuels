@@ -1,4 +1,4 @@
-# **PURE DUELS**
+# **STRICTLY DUELING**
 # **RDM = INSTANT BAN**
 
 
