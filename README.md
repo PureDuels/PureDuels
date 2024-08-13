@@ -1,5 +1,5 @@
-# <p align="center">**PURE DUELS**</p>
-# <p align="center">**RDM = INSTANT BAN**</p>
+# **PURE DUELS**
+# **RDM = INSTANT BAN**
 
 &nbsp;
 # **Rules**
